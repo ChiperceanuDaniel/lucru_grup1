@@ -1,0 +1,1 @@
+# lucru_grup1
